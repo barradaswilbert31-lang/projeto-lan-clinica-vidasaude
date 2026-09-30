@@ -12,7 +12,7 @@ Professor: Prof. Guibson Krause
 
 **Integrantes do Grupo**
 
-Wilbert Moreira Barradas
+WILBERT MOREIRA BARRADAS
 
 LUCAS TORRES  CUNHA 
 
