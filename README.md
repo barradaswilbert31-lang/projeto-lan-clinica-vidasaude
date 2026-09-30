@@ -14,11 +14,11 @@ Professor: Prof. Guibson Krause
 
 Wilbert Moreira Barradas
 
-[Nome do Integrante 2]
+LUCAS TORRES  CUNHA 
 
-[Nome do Integrante 3]
+RUBERTY CARLOS LOPES DA CUNHA 
 
-[Nome do Integrante 4]
+DANIEL MENDES DA FONSECA MADEIRA 
 
 **Sobre a Empresa Fictícia**
 
